@@ -1,0 +1,1 @@
+Renovation of an existing building of public college. Design involved modifications of structural columns by reinforcing the structure along with beam and to provide louvers for wind and indirect lighting and creating aesthetically beautiful from an older pathetic building.
